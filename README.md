@@ -10,3 +10,12 @@ chimi chimi chimi chang -gaaa :d
 ![](https://media0.giphy.com/media/3otPorWLQJq5GmHRtu/giphy.gif)
 
 ![](https://media4.giphy.com/media/staaDAlDy0q8E/giphy.gif?cid=ecf05e47lujoh9z4l87fx71wqtf4ssom9y7pegsqfryr1q0h&rid=giphy.gif&ct=g.gif)
+
+
+
+<a href=#><img src="contributions.svg"></a>
+
+<p align="center"> 
+  Visitor count<br>
+  <img src="https://profile-counter.glitch.me/ViktorKrumov/count.svg" />
+</p>
