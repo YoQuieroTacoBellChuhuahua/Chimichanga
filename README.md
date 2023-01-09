@@ -7,4 +7,4 @@ chimi chimi chimi chang -gaaa :d
 
 ![image](https://user-images.githubusercontent.com/80414148/211292737-35a638f9-d0dc-4dc9-90bd-46c5a9c89214.png)
 
-![Alt Text](https://tenor.com/view/daddy-long-neck-dancing-gif-17969515)
+![Alt Text](https://tenor.com/view/daddy-long-neck-dancing-gif-17969515.gif)
