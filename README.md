@@ -5,6 +5,4 @@ chimi chimi chimi chang -gaaa :d
 
 ![image](https://user-images.githubusercontent.com/80414148/211290866-889e089b-5cdf-4dae-adff-ddba3e6bdcc7.png)
 
-![image](https://user-images.githubusercontent.com/80414148/211292737-35a638f9-d0dc-4dc9-90bd-46c5a9c89214.png)
-
-![Alt Text](https://tenor.com/view/daddy-long-neck-dancing-gif-17969515.gif)
+<div class="tenor-gif-embed" data-postid="17969515" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/daddy-long-neck-dancing-gif-17969515">Daddy Long Neck Dancing GIF</a>from <a href="https://tenor.com/search/daddy+long+neck+dancing-gifs">Daddy Long Neck Dancing GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
