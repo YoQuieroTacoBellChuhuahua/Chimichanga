@@ -5,6 +5,6 @@ chimi chimi chimi chang -gaaa :d
 
 ![image](https://user-images.githubusercontent.com/80414148/211290866-889e089b-5cdf-4dae-adff-ddba3e6bdcc7.png)
 
-![](https://tenor.com/view/daddy-long-neck-dancing-gif-17969515.gif)
+![](https://media.tenor.com/ygDRKLTftFMAAAAd/daddy-long-neck-dancing.gif)
 
 ![](https://media0.giphy.com/media/3otPorWLQJq5GmHRtu/giphy.gif)
